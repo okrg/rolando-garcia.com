@@ -1,2 +1,0 @@
-# rolando-garcia.com
- 
